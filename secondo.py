@@ -1,0 +1,1 @@
+mormo kej napist?
